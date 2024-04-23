@@ -1,2 +1,2 @@
-Turizm Acenta Uygulaması
+Turizm Acente Uygulaması
 
